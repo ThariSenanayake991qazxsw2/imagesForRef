@@ -14,7 +14,7 @@
 
 ![windows](https://github.com/ThariSenanayake991qazxsw2/imagesForRef/assets/106215434/23ef3ce8-8cc3-451f-ad65-d8d170547a64)
 
-![linux](https://github.com/ThariSenanayake991qazxsw2/imagesForRef/assets/106215434/89d5429f-ef27-493d-8ab1-057be7c8b452)
+![linux](https://github.com/ThariSenanayake991qazxsw2/imagesForRef/assets/106215434/d051e933-852d-4a99-9d08-21bdd027db1c)
 
 
 ![ec](https://github.com/ThariSenanayake991qazxsw2/imagesForRef/assets/106215434/04dfe5b2-5435-4198-8d47-6b6fb4701911)
